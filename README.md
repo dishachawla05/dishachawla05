@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... begginer/entry-level projects.
 - 📫 How to reach me ... my number, 6149064721 or my email dishachawla05@gmail.com
 - 😄 Pronouns: ... she/her
-- ⚡ Fun fact: ... I've been to over 15 concert; I love music:)
+- ⚡ Fun fact: ... I've been to over 15 concerts; I love music:)
 
 <!---
 dishachawla05/dishachawla05 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
